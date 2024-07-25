@@ -1,2 +1,0 @@
-# ALictike.github.io
-#hi
